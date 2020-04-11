@@ -1,0 +1,2 @@
+# Getting-a-Domain-Name-using-GoDaddy
+If you're starting a web business, otherwise you have plans to expand your business to the web sphere, the primary step that you simply got to take is to find out the way to buy a website name from services like GoDaddy. Without buying a website name, you can't build your website, publish content, list the products that you simply are selling, and alike https://templatetester.com/how-to-buy-a-domain-name-with-godaddy/  .
